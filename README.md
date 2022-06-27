@@ -9,3 +9,5 @@ $450
 
 Add my discord to discuss purchasing
 Will provide proof & send bits of code 👍 if needed.
+
+Discord: cia#3533
